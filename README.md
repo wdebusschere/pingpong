@@ -18,7 +18,7 @@ Allmighty Pingpong Champ **Yazzine**
 |  22/09 |  1  |  3  |
 | 04/10 |  3* |   3  |
 | 11/10 |  2* |   3  |
-| 11/10 |  6 |   9  |
+|  |  6 |   9  |
 
 Allmighty Pingpong Champ **Yazzine**
 
