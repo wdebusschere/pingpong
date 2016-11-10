@@ -17,6 +17,13 @@ Allmighty Pingpong Champ **Yazzine**
 |---|---|---|
 |  22/09 |  1  |  3  |
 | 04/10 |  3* |   3  |
+| 11/10 |  2* |   3  |
+
+Allmighty Pingpong Champ **Yazzine**
 
 
-
+|   |  Wanas |  Yazz | 
+|---|---|---|
+|  10/11 |  0  |  3**  |
+| | |     |
+|  |  |    |
