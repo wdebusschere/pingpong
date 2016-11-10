@@ -25,6 +25,6 @@ Allmighty Pingpong Champ **Yazzine**
 
 |   |  Wanas |  Yazz | 
 |---|---|---|
-|  10/11 |  0  |  3**  |
+|  10/11 |  1  |  4***  |
 | | |     |
 |  |  |    |
